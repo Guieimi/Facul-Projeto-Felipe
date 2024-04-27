@@ -5,6 +5,12 @@ Nome do Participante:
 GUILHERME RIBEIRO ARAUJO DOS SANTOS 
 RA: 2223205236
 
+Beatriz Vieira de Jesus 
+RA: 2223203960
+
+leonardo de jesus ribeiro
+RA: 2223204095
+
  -Nome da empresa:
 Story Polaroids
 
